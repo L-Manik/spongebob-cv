@@ -1,1 +1,1 @@
-# spongebob-cv
+Greetings, fellow 3rd dimensional, carbon-based lifeform.
